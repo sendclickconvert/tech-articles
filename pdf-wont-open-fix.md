@@ -1,6 +1,6 @@
 # PDF Won't Open? Here's Your Step-by-Step Fix (No IT Department Required)
 
-**Read the interactive version:** https://claude.ai/public/artifacts/5dde31e6-5dd0-4f36-9838-be65b5bf0348
+**Read the interactive version:** https://claude.ai/public/artifacts/9935e391-f139-435e-94bb-c8553bf16a8c
 
 ---
 
